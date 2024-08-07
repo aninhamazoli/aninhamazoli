@@ -12,4 +12,4 @@ Você pode entrar em contato comigo:
 
 @aninhamazoli
 
-![](linkhttps://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjEyYnVldnd0Z3hveTM2MTRxem1oZzR4ajJzaTJqaWpjcHZpOGN0YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/13ETTwaYwKMfmg/giphy.gif)
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjEyYnVldnd0Z3hveTM2MTRxem1oZzR4ajJzaTJqaWpjcHZpOGN0YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/13ETTwaYwKMfmg/giphy.gif)
